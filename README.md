@@ -6,7 +6,7 @@
 
 - 💞️ I’m looking to collaborate on learning projects.
 
-- 📫 How to reach me is via email madamba.jarl@gmail.com
+- 📫 How to reach me is via email madamba.jarl@gmail.com or jarlleander.madamba@tup.edu.ph
 
 I also like to play games and watch movies and Kdramas as well as listening to Kpop!
 
